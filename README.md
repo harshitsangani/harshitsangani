@@ -1,6 +1,6 @@
 ## **Harshit Sangani**
 
-💼 Work @ [**HK Byte**](https://hkbyte.com/)<br>
+💼 Work @ [**REO**](https://reo.so/)<br>
 🏠 Jamnagar, Gujarat, India<br>
 📧 Email: [iamharshitsangani@gmail.com](mailto:iamharshitsangani@gmail.com)<br>
 🌐 Website: [harshitsangani.com](https://harshitsangani.com)<br>
